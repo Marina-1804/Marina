@@ -24,7 +24,9 @@
 Ссылка на проект (прикладываю скриншоты результатов работы,т. к. данные конфеденциальны):
 
 https://drive.google.com/file/d/1R2_nui_DEwgdiEiKBg6X0ejz-NHtA65N/view?usp=sharing
+
 https://drive.google.com/file/d/1s9bbG_oUS7u18E5-M6xym3vMIfPZvB_1/view?usp=sharing
+
 https://drive.google.com/file/d/1s-0bliuXMVmPb4H1-m94E_9In0Ud98-X/view?usp=sharing
 
 Выводы:
